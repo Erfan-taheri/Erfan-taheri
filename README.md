@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Erfan-taheri
+- Hi, I’m @Erfan-taheri
 - I'm student of sofware engineering
 - I'm a freelancer and i have several projects wich i'll share with you
 - Enjoy!
